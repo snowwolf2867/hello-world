@@ -12,11 +12,9 @@
 
 ### ★★★Blinkload
 
-[Blinkload](https://blinkload.to/aff/jFKP)
+[Blinkload](https://blinkload.to/aff/S5OQ)
 
 >虽然开很久了但最近才开始用，而且他们也是全线升级了。现在公司化运营（Blinkload Technology Co.,Ltd ）全线 BGP 入口， IEPL线路。用了一段时间不错。但是月流量略低。
-
->>目前有优惠码：BIGDONGDONG 88折；BIGDONGDONGYEAR 年付套餐85折
 
 ### ★★★PIEcloud
 
@@ -24,7 +22,7 @@
 
 >非重度用户首选 便宜 可月付 分组设置 所有用户分组，避免因为用户而拥堵，每个分组节点少但人也少。
 
-[piecloud邀请码](https://piecloud.site/auth/register?code=mBsUmuHUNQvYknID96Nc2YWeGr5Y66dQ)
+[piecloud邀请码](https://piecloud.site/auth/register?code=0dYG)
 
 -----------------------------------------------------------------------------------------------
 
